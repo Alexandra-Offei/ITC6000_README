@@ -1,1 +1,0 @@
-# ITC6000_README
